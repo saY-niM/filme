@@ -30,3 +30,9 @@ _ Tudo bem não ser normal _
 livros infantis anti-social e um cuidador que se conhecem por acaso.
 
 ![](https://media1.tenor.com/m/hnCNDiF-mZAAAAAd/seo-ye-ji-its-okay-to-not-be-okay.gif)
+
+_ Barbie em vida de sereia _
+ _ infantil e animação digital
+ - Barbie é uma campeã de surfe que vive com sua família em Malibu. Um dia, ela descobre um segredo de família: ela é uma sereia. Sua mãe, a rainha de Oceana, está em perigo e ela parte numa grande aventura no fundo do mar para salvá-la.
+
+![](https://media1.tenor.com/m/B8l-KTHS5xsAAAAd/fish-judgemental.gif)
