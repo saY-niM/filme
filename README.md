@@ -36,3 +36,14 @@ _ Barbie em vida de sereia _
  - Barbie é uma campeã de surfe que vive com sua família em Malibu. Um dia, ela descobre um segredo de família: ela é uma sereia. Sua mãe, a rainha de Oceana, está em perigo e ela parte numa grande aventura no fundo do mar para salvá-la.
 
 ![](https://media1.tenor.com/m/B8l-KTHS5xsAAAAd/fish-judgemental.gif)
+
+_ Rua do medo: 1994 _
+ - terro e slasher
+ - Após uma série de assassinatos brutais, um grupo de adolescentes enfrenta uma força maligna que aterroriza uma cidade há séculos.
+
+![](https://media1.tenor.com/m/oYeKIwkCXFUAAAAC/screaming-rachel-thompson.gif)
+
+_ Operação Cupido _
+ - Infantil e comedia
+ - Uma menina de 11 anos de idade conhece sua irmã gêmea que mora na Califórnia e, juntas, planejam reconciliar seus pais divorciados. A primeira missão é deter uma interesseira que tenta conquistar o pai.
+ - 
