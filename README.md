@@ -73,7 +73,7 @@ _ Dançarina Imperfeita _
  - Comédia e Musical
  - Uma jovem se compromete a superar sua timidez através da dança para entrar na escola de seus sonhos.
 
-![](https://media1.tenor.com/m/abOC1ZjfRxoAAAAd/dancing-sabrina-carpenter.gif)
+![](https://media1.tenor.com/m/7PAxkfKYGSAAAAAd/pose-sabrina-carpenter.gif)
 
 °•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•
 
