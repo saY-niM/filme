@@ -46,4 +46,36 @@ _ Rua do medo: 1994 _
 _ Operação Cupido _
  - Infantil e comedia
  - Uma menina de 11 anos de idade conhece sua irmã gêmea que mora na Califórnia e, juntas, planejam reconciliar seus pais divorciados. A primeira missão é deter uma interesseira que tenta conquistar o pai.
- - 
+
+   ![](https://media1.tenor.com/m/Io3nMrpXwv4AAAAd/the-parent-trap-twins.gif)
+   
+_ Superman & Lois _
+ - Drama e fantasia
+ - Após anos enfrentando vilões megalomaníacos, monstros destruidores e invasores alienígenas, o Homem de Aço e a famosa jornalista Lois Lane retornam à idílica cidade de Smallville para criar os filhos adolescentes, Jonathan e Jordan.
+
+![](https://media1.tenor.com/m/1AKTHDPd23sAAAAd/superman-and-lois-clark-kent.gif)
+
+_ Dançarina Imperfeita _
+ - Comédia e Musical
+ - Uma jovem se compromete a superar sua timidez através da dança para entrar na escola de seus sonhos.
+
+![](https://media1.tenor.com/m/abOC1ZjfRxoAAAAd/dancing-sabrina-carpenter.gif)
+
+_ Your Name _
+ - Romance e fantasia
+ - Mitsuha é a filha do prefeito de uma pequena cidade, mas sonha em tentar a sorte em Tóquio. Taki trabalha em um restaurante em Tóquio e deseja largar o seu emprego. Os dois não se conhecem, mas estão conectados pelas imagens de seus sonhos.
+
+![](https://media1.tenor.com/m/WqTjL5v0dugAAAAd/your-name-walk-away.gif)
+
+_ Belle _
+ - ficção cientifica e Musical
+ - Uma adolescente se torna uma cantora mundialmente famosa após entrar em um fantástico mundo virtual. Lá ela encontra uma criatura misteriosa e embarca em uma jornada para descobrir sua identidade.
+   
+![](https://media1.tenor.com/m/fJXJDTsC7zcAAAAd/belle-anime.gif)
+
+_ Bela e a Fera _
+ - infantil e Musical
+ - A jovem Bela está cansada da vida provinciana de uma pequena cidade francesa, onde vive também o galã Gastón que, apesar de derreter corações, não consegue conquistá-la com seu jeito grosseiro. Maurice, o pai de Bela, viaja para expor uma de suas invenções e acaba preso em um castelo onde vive uma temível Fera, que precisa encontrar o verdadeiro amor e ser correspondido para quebrar um feitiço e voltar a ser príncipe. Em troca da liberdade do pai, Bela aceita ficar presa no castelo para sempre.
+
+![](https://media1.tenor.com/m/_xFo3GHToV4AAAAd/bye-goodbye.gif)
+
