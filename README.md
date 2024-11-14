@@ -9,6 +9,8 @@ sem licença
 
 ![](https://media1.tenor.com/m/27c7tFMeHEkAAAAd/japeththe-goat-hood-winked.gif)
 
+°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•
+
 _ Gente Grande _
  - comedia
  - Em Gente Grande, Lenny (Adam Sandler), 
@@ -24,6 +26,8 @@ os homens de família terão de confrontar o fato de não serem mais tão jovens
 
 ![](https://media1.tenor.com/m/wQdHbqLkiHkAAAAd/china-anne-mcclain-cameron-boyce.gif)
 
+°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•
+
 _ Tudo bem não ser normal _
  - romance e drama
  - Um caminho para a cura e superação emocional se abre para uma autora de 
@@ -31,11 +35,15 @@ livros infantis anti-social e um cuidador que se conhecem por acaso.
 
 ![](https://media1.tenor.com/m/hnCNDiF-mZAAAAAd/seo-ye-ji-its-okay-to-not-be-okay.gif)
 
+°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•
+
 _ Barbie em vida de sereia _
  - infantil e animação digital
  - Barbie é uma campeã de surfe que vive com sua família em Malibu. Um dia, ela descobre um segredo de família: ela é uma sereia. Sua mãe, a rainha de Oceana, está em perigo e ela parte numa grande aventura no fundo do mar para salvá-la.
 
 ![](https://media1.tenor.com/m/B8l-KTHS5xsAAAAd/fish-judgemental.gif)
+
+°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•
 
 _ Rua do medo: 1994 _
  - terro e slasher
@@ -43,11 +51,15 @@ _ Rua do medo: 1994 _
 
 ![](https://media1.tenor.com/m/oYeKIwkCXFUAAAAC/screaming-rachel-thompson.gif)
 
+°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•
+
 _ Operação Cupido _
  - Infantil e comedia
  - Uma menina de 11 anos de idade conhece sua irmã gêmea que mora na Califórnia e, juntas, planejam reconciliar seus pais divorciados. A primeira missão é deter uma interesseira que tenta conquistar o pai.
 
    ![](https://media1.tenor.com/m/Io3nMrpXwv4AAAAd/the-parent-trap-twins.gif)
+   
+   °•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•
    
 _ Superman & Lois _
  - Drama e fantasia
@@ -55,11 +67,15 @@ _ Superman & Lois _
 
 ![](https://media1.tenor.com/m/1AKTHDPd23sAAAAd/superman-and-lois-clark-kent.gif)
 
+°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•
+
 _ Dançarina Imperfeita _
  - Comédia e Musical
  - Uma jovem se compromete a superar sua timidez através da dança para entrar na escola de seus sonhos.
 
 ![](https://media1.tenor.com/m/abOC1ZjfRxoAAAAd/dancing-sabrina-carpenter.gif)
+
+°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•
 
 _ Your Name _
  - Romance e fantasia
@@ -67,11 +83,14 @@ _ Your Name _
 
 ![](https://media1.tenor.com/m/WqTjL5v0dugAAAAd/your-name-walk-away.gif)
 
+°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•
+
 _ Belle _
  - ficção cientifica e Musical
- - Uma adolescente se torna uma cantora mundialmente famosa após entrar em um fantástico mundo virtual. Lá ela encontra uma criatura misteriosa e embarca em uma jornada para descobrir sua identidade.
-   
+ - Uma adolescente se torna uma cantora mundialmente famosa após entrar em um fantástico mundo virtual. Lá ela encontra uma criatura misteriosa e embarca em uma jornada para descobrir sua identidade. 
 ![](https://media1.tenor.com/m/fJXJDTsC7zcAAAAd/belle-anime.gif)
+
+°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•
 
 _ Bela e a Fera _
  - infantil e Musical
@@ -79,3 +98,4 @@ _ Bela e a Fera _
 
 ![](https://media1.tenor.com/m/_xFo3GHToV4AAAAd/bye-goodbye.gif)
 
+°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•°•
